@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cherrychen
-- 👀 I’m interested in 
+- 👀 I’m interested 
 - 🌱 I love this world 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
